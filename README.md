@@ -1,0 +1,2 @@
+# clase bi idea
+ 
